@@ -94,4 +94,4 @@ This is a fan-made project. It is not affiliated with the original developer or 
 
 ---
 ### 🔎 Search Tags (Indexing)
-Jenny Mod Reforged, Jenny Mod download, Jenny Mod 1.20.1, Jenny Mod forge 1.21, Jenny Mod modern version, Minecraft Jenny Mod updated, Jenny NPC mod, Jenny Mod all versions, Jenny Mod working 2026.
+Jenny Mod Reforged, Jenny Mod download, Jenny Mod 1.20.1, Jenny Mod forge 1.21, Jenny Mod modern version, Minecraft Jenny Mod updated, Jenny NPC mod, Jenny Mod all versions, Jenny Mod working 2026, Minecraft Jenny Mod.
