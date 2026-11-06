@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/BQfNMgck/a-high-quality-3d-render-in-th-2026-11-04T14-39-33.png" alt="Jenny Mod Reforged Banner" width="800">
+  <img src="https://i.postimg.cc/ncvY3dxD/type-text-new-jenny-mod-pink-2026-11-06T15-17-17-(1).png" alt="Jenny Mod Reforged Banner" width="800">
 </p>
 
 ---
